@@ -1,0 +1,1 @@
+To learn sth. about linux!
